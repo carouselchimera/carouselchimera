@@ -33,7 +33,9 @@
 
 𝄡 *boundaries* ♫𝄪
 
-ㆍ✧ ask before you: whisper, friend request
+ㆍ✧ feel free to: whisper, interact in general
+
+ㆍ✧ ask before you: friend request
 
 ㆍ✧ do not: flirt, give nicknames
 
