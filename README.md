@@ -1,8 +1,8 @@
 ◣▲◢ BLACKROCK ◣▲◢
 
-or DANDY , SUBSPACE
+or ECHO , CATNAP
 
-it/they + bloss/blossom , bloom/blooms , rot/rots
+it/they/she + mist/mists
 
 21+ system with various disorders
 
