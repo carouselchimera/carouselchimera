@@ -1,8 +1,8 @@
 ◣▲◢ BLACKROCK ◣▲◢
 
-or ECHO , CATNAP
+or ECHO
 
-it/they/she + mist/mists
+it/they/she
 
 21+ system with various disorders
 
