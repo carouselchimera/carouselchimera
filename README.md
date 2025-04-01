@@ -2,7 +2,7 @@
 
 or ECHO
 
-it/they/she
+any pronouns
 
 21+ system with various disorders
 
